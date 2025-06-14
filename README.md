@@ -1,7 +1,7 @@
 # Profile
 <h1 align="center">👑 Sung Jin-Woo Mode Activated 👑</h1>
 <p align="center">
-  <img src="https://media.tenor.com/gZ8zjVnPpDwAAAAC/solo-leveling-jinwoo.gif" alt="Sung Jin-Woo" width="400"/>
+  <img src="https://www.uhdpaper.com/2020/01/sung-jin-woo-solo-leveling-4k-71072.html" alt="Sung Jin-Woo" width="400"/>
 </p>
 
 <h3 align="center">"Arise, my shadow army."</h3>
